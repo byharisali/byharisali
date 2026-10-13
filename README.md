@@ -1,3 +1,5 @@
+<img align="right" width="200" src="portrait.jpg" alt="Haris Ali">
+
 # Haris Ali — Graphic Designer & Print Specialist
 
 **Haris Ali Studio · Deira, Dubai, UAE**
